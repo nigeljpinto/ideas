@@ -1,1 +1,1 @@
-Thhisi si a good way to make notes
+Use these resources to process different ideas that you might have in th
